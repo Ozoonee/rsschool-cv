@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Ozoonee.github.io/rsschool-cv/cv
